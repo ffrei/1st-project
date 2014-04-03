@@ -1,1 +1,1 @@
-Bonjour je m'appelle ffrei
+Bonjour je m'appelle ffrei. Et je suis etudiant en IUT :D
